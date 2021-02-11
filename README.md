@@ -1,8 +1,7 @@
 # hello-world
 print 'hello world' to console
 oopopopo
-heloolololololololololo
-gtbgb
-ckndvnfkvfvn f
-vkfnvfbvf vj
-k  mmm
+I am also the beast!
+msskjcdcd cdc d c
+]kndcndkccfd
+gambarimas
