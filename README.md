@@ -5,4 +5,3 @@ I am also the beast!
 msskjcdcd cdc d c
 ]kndcndkccfd
 gambarimas
-man
